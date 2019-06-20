@@ -1,1 +1,2 @@
 ///
+Watch Movies Online Free and watch series online on official Putlockers without registration or sign up.Putlocker is the best site to watch movies with subtitles [Putlocker](https://www1.putlockerhd.download/)
